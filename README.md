@@ -7,5 +7,5 @@ Feel free to message me about my projects or anything at all. I would love the o
 
 - 🔭 I’m currently seeking a job as a software engineer
 - :jp: Studied abroad in Tokyo, Japan :tokyo_tower: 2015-2016
-- 💬 Ask me about music, games, Japan, and the Boy Scouts of America
+- 💬 Ask me about music, video games, Japan, and the Boy Scouts of America
 
